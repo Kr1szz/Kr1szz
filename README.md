@@ -1,4 +1,4 @@
-![header](https://raw.githubusercontent.com/Kr1szz/Kr1szz/main/9142f5a93462457810d06e8eee77516c.jpg)
+![header](https://raw.githubusercontent.com/Kr1szz/Kr1szz/main/d382b5466b0d24c9de5b46a088ea3380.jpg)
   
 <samp>
   
